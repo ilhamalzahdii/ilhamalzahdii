@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ilhamalzahdii
-- 👀 I’m interested in web development
+- 👀 I’m interested in youuuu
 - 🌱 I’m currently learning basic of any programming lenguage
 - 💞️ I’m looking to collaborate on until now still not there
 - 📫 How to reach me with my IG: @ilham_alzahdi7
